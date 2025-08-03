@@ -2,4 +2,7 @@
 
 <br>
 ---<br>
-a random joke with its author crating code , from the web page
+Got much errors...?
+Feeling sad..?
+No worry. This is for you!!!
+But get back to work again! 💪 
