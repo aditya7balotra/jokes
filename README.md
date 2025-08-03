@@ -1,7 +1,4 @@
-# jokes
 
-<br>
----<br>
 Got much errors...?<br>
 Feeling sad..?<br>
 No worry. This is for you!!!<br>
